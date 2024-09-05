@@ -7,3 +7,13 @@ You can reach me at kaywhitcaston@gmail.com
 I love gadgets  
 
 
+
+
+
+
+
+
+
+
+
+
